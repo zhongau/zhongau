@@ -1,3 +1,6 @@
 Austin Zhong
-Education: Northeastern University
-Bachelor's of Science in Computer Science
+
+Education
+Northeastern University, Khoury College of Computer Sciences
+Candidate: Bachelor of Science in Computer Science
+Boston, MA Sept 2024 - May 2028
